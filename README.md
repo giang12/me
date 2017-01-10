@@ -4,7 +4,7 @@ all about me
 ## [current resume](giang_nguyen_resume_2017.pdf) 
 
 
-## Other Activities 
+## Other Places to find me 
 
 [spotify_link, I love music and making playlists](https://open.spotify.com/user/121901997) 
 
