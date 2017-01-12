@@ -14,3 +14,7 @@ all about me
 
 
 [instagram_link, don't live for the grams, just trying to be artistic as fuq... don't you see!](https://www.instagram.com/bafo0/) 
+
+## want to know me? read what I read, read my mind...be gentle
+
+[Craftman, trying to be more disciplined like an engineer...](http://philosopherdeveloper.com/posts/am-i-an-engineer.html) 
