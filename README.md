@@ -18,3 +18,6 @@ all about me
 ## want to know me? read what I read, read my mind...be gentle
 
 [Craftman, trying to be more disciplined like an engineer...](http://philosopherdeveloper.com/posts/am-i-an-engineer.html) 
+
+## --- ##
+> “It takes guts to be a first follower. You stand out, you brave ridiculing yourself. Being a first follower is an underappreciated form of leadership”.
