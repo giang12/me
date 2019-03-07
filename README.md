@@ -1,7 +1,7 @@
 # me
 all about me
 
-## [current resume](giang_nguyen_resume_2017.pdf) 
+## [current resume](Giang_Nguyen_resume_2019.pdf) 
 
 
 ## Other Places to find me 
